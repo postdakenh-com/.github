@@ -14,4 +14,4 @@ PostĐaKênh là công cụ đăng và lên lịch bài đa kênh cho người V
 - 💸 Affiliate: https://postdakenh.com/affiliate
 
 ## Kênh hỗ trợ
-Facebook · TikTok · YouTube · Instagram · Threads · LinkedIn · Telegram · Zalo OA
+Facebook · TikTok · YouTube · Instagram · Threads · LinkedIn · Telegram · Zalo OA · Pinterest · X
